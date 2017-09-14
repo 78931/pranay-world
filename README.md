@@ -1,1 +1,1 @@
-# pranay-world
+# pranai-world
